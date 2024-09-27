@@ -7,4 +7,4 @@
 - Pretendo cursar estética 💄
 - meu insta: @anaaclp
 
-if](https://tenor.com/pt-BR/view/plink-cat-plink-cat-gif-1794292671885121408)
+if] (https://tenor.com/pt-BR/view/plink-cat-plink-cat-gif-1794292671885121408)
